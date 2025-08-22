@@ -4,3 +4,6 @@ Ich werde in dieser Lernperiode intensiv daran arbeiten, eine passende Praktikum
 # Feinplanung
 ## 15.08.2025
 Heute werde ich meinen Lebenslauf sorgfältig aktualisieren, indem ich das neue Zeugnis hinzufüge und alle relevanten Informationen auf den neuesten Stand bringe. Anschließend werde ich für mehrere ausgewählte Unternehmen individuelle und überzeugende Bewerbungen verfassen, um mich dort für eine mögliche Anstellung oder ein Praktikum zu bewerben.
+
+
+## 22.08.2025
