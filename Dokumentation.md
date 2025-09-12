@@ -13,3 +13,7 @@ Heute bin ich ins sekretariat gegangen habe mir eine neuere Version von dem Zeug
 ## 5.9.2025
 
 Heute habe ich mehrere Bewerbungen geschrieben und mir dafür Zeit genommen, die Unterlagen sorgfältig zu prüfen. Außerdem habe ich mein Dossier nochmals überarbeitet, kleinere Korrekturen vorgenommen und es auf den neuesten Stand 
+
+## 12.9.2025
+
+Heute werde ich die Prüfung des Moduls 117 abschliessen und dann werde ich mich bewerben für ein paar stellen.
